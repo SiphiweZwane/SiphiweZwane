@@ -7,5 +7,4 @@
 - 🎯 Passionate about automation, AI, and web development.  
 
 ## 🌍 Connect with Me:
-- 🔗 www.linkedin.com/in/siphiwe-zwane-86706a179
 - 📧 Email: zwanekamabena@gmail.com
